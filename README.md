@@ -1,4 +1,4 @@
-### Hi there, I'm Soulhat! 👋
+### Hi there, I'm Bin! 👋
 
 **Languages and Tools:**  
 
